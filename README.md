@@ -1,4 +1,4 @@
-[New Link] Video tutoriel : https://www52.zippyshare.com/v/luiSLXu3/file.html
+[New Link] Video tutoriel : https://anonfiles.com/v2n2m2xbpd/Winlog_Tuto_mp4
 
 BaseBrd-01574 folder is the server:
 ----------------------------------
